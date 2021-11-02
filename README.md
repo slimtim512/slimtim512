@@ -1,5 +1,5 @@
 ### Hi there!! 👋
-## You've reached the page of Timothy E. Hardaway. Sorry I can't answer right now. Please leave a message after the....
+## You've reached the page of Timothy E. Hardaway. Sorry I can't answer the screen right now. Please leave a message after the....
 
 ## My last name may be Hardaway but I do things anything but the hard way. I like to think of myself as a fun-loving, detailed-oriented, hard-working, software developer.
 
