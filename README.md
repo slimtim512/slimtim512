@@ -1,7 +1,7 @@
 ### Hi there 👋
 ##You've reached Timothy E. Hardaway. Sorry I can't answer right now. Please leave a message after the....
 
-My last name may Hardaway but I do things anything but the hard way. I like to think of myself as a fun-loving, detailed-oriented, hard-working, software developer.
+My last name may be Hardaway but I do things anything but the hard way. I like to think of myself as a fun-loving, detailed-oriented, hard-working, software developer.
 
 
 - 🔭 I’m currently working on getting a job as a software developer and a few of my Kenzie Projects.
